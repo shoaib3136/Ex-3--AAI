@@ -124,6 +124,7 @@ ii.)
 ![image](https://github.com/shoaib3136/Ex-3--AAI/assets/117919362/47906559-7071-4bbc-ab03-a743e87663df)
 
 iii.)
+
 ![image](https://github.com/shoaib3136/Ex-3--AAI/assets/117919362/4f137e03-a712-49cb-b211-9db3f800eb2d)
 
 
